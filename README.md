@@ -6,7 +6,7 @@
 - 👯 I’m looking to collaborate on Google.
 - 🤔 I’m looking for help with GeeksforGeeks.
 - 💬 Ask me about Adndroid Apps.
-- 📫 How to reach me: Twitter - @masudrana43.
+- 📫 How to reach me: What's App: 01628702811.
 - 😄 Pronouns: He/His.
 - ⚡ Fun fact:I spend almost 2 hours watching the movie everyday.
 -->
